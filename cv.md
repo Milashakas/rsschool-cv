@@ -1,4 +1,4 @@
-![profile-photo](https://raw.githubusercontent.com/Milashakas/Pre-rsschool-cv/gh-pages/assets/img/IMG_5304.JPG)
+![profile-photo](https://user-images.githubusercontent.com/92454371/225726271-50fe49a4-26bb-4e36-aca0-e23f20447d95.JPG)
 ##### Kasumava Milana 
 ### My contacts:
 * Phone number: +375(29)652-73-68
